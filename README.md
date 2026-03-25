@@ -3,7 +3,7 @@
 <img src="https://komarev.com/ghpvc/?username=fangrots&style=for-the-badge&color=8c3e2a&base=200&label=LOCAL+BLOODBAGS" /> <p align="center">
  <p align="center">
   <p align="center">
- ${\textsf{\color{#ace3e0}wiip,}}$
+ ${\textsf{\color{#ace3e0}a twisted body on display, you couldn't pay }}$
  <p align="center">
 </a>
 <img src="https://i.ibb.co/DHy3DPXk/veil-png.png" width="250" height="260%"/>
@@ -12,7 +12,7 @@
  19yo⠀wip dont kill me.
  <p align="center">
    <p align="center">
- ${\textsf{\color{#8c3e2a} wiip}}$
+ ${\textsf{\color{#8c3e2a}me to care about anything or anyone.}}$
  <p align="center">
 <p align="center">
  <table>
