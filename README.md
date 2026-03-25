@@ -6,7 +6,7 @@
  ${\textsf{\color{#8c3e2a}wiip,}}$
  <p align="center">
 </a>
-<img src="https://static.wikia.nocookie.net/zenless-zone-zero/images/a/a7/Zenless_Zone_Zero_Ridu_Stroll_Sticker_Pack_1_Nekomata.png/revision/latest?cb=20240321041454" width="150" height="160%"/>
+<img src="https://i.ibb.co/DHy3DPXk/veil-png.png" width="250" height="260%"/>
 <p align="center">
  <b>Kitty / UHM idk man</b> ⠀˶ᵔ ˕ ᵔ˶<br>
  19yo⠀wip dont kill me.
