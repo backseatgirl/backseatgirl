@@ -7,6 +7,9 @@
  <p align="center">
 </a>
 <img src="https://i.ibb.co/DHy3DPXk/veil-png.png" width="250" height="260%"/>
+   <p align="center">
+ ${\textsf{\color{#8c3e2a}me to care about anything or anyone.}}$
+ <p align="center">
 <p align="center">
  <b>kitty / vienna</b> ⠀˶ᵔ ˕ ᵔ˶<br>
  9teen◞ pro—fic. <br>
@@ -16,9 +19,6 @@
  <br>
  i block &&. hide freely ᵔᴗᵔ <br>
 <i>curate your online experience!</i>
- <p align="center">
-   <p align="center">
- ${\textsf{\color{#8c3e2a}me to care about anything or anyone.}}$
  <p align="center">
 <p align="center">
 <img src="https://64.media.tumblr.com/7e68f04f896567207a5cc6a3582b39f3/12b83be7f3afc336-f7/s400x600/481be073f725ed2ffefcace9d090cc9f94c1ced6.pnj"width="200" height="200%"/> <img src="https://64.media.tumblr.com/4d54b076ba04e883f344e57215270bf7/12b83be7f3afc336-0d/s400x600/1295db2a20694c8d89c7296372ae99b1363316a9.pnj"width="200" height="200%"/>
