@@ -12,7 +12,7 @@
  <p align="center">
 <p align="center">
  <b>kitty / vienna</b> ⠀˶ᵔ ˕ ᵔ˶<br>
- 9teen◞ pro—fic. <br>
+ 9teen◞ anti—hara. <br>
  <br>
  i ♡ <b>iwtv</b>, the boys, spn, <br>
  &&. mcyt ( ++ more. ) <br>
