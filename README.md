@@ -12,7 +12,8 @@
  <p align="center">
 <p align="center">
  <b>kitty / vienna</b> ⠀˶ᵔ ˕ ᵔ˶<br>
- 9teen◞ anti—hara. <br>
+ 9teen◞ pro—fic. <br>
+ <i>idgaf what you like so long as it remains fictional</i> <br>
  <br>
  i ♡ <b>iwtv</b>, the boys, spn, <br>
  &&. mcyt ( ++ more. ) <br>
