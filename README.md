@@ -13,7 +13,7 @@
 <p align="center">
  <b>kitty / vienna</b> ⠀˶ᵔ ˕ ᵔ˶<br>
  9teen◞ he or hrr idc. <br>
- <i>idgaf what you like so long as it remains fictional</i> <br>
+ <i>antihara, idgaf i block what i dont like</i> <br>
  <br>
  i ♡ <b>iwtv</b>, the boys, spn, <br>
  &&. mcyt ( ++ more. ) <br>
