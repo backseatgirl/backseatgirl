@@ -10,5 +10,6 @@
    <p align="center">
  coked upㅤ ㅤ␥ㅤ ㅤdrunk on bloodㅤ ㅤ␥ㅤ ㅤyaoipilled. <br>
  100 skin styles,ㅤi can't stop you from copying but i will get you. <br>
- i'm dealthy scared of human interaction, forgive me if i flee or go silent.
+ i'm dealthy scared of human interaction, forgive me if i flee or go silent. <br>
+ my socials will be aesthetic soon, im runnin' on empty atm.
  <p align="center">
