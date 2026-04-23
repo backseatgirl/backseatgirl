@@ -10,3 +10,5 @@
    <p align="center">
  im making this. trust me.
  <p align="center">
+
+  [listography](https://listography.com/shrikes) <- 100% done trust me ok
