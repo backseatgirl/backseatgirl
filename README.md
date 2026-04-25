@@ -6,7 +6,7 @@
  ${\textsf{\color{#9c0b19}you could have been some other guy.}}$
  <p align="center">
 </a>
-<img src="https://i.pinimg.com/1200x/ea/76/a6/ea76a6d32beb32a771aecf24395e138a.jpg" width="250" height="260%"/>
+<img src="https://i.pinimg.com/1200x/fd/b9/56/fdb9565a6708626b653f5268dfe38d2c.jpg" width="250" height="260%"/>
 <p align="center">
  <a href= "https://listography.com/shrikes"> listography</a>ㅤ≡ㅤ<a href= "">strawpage (tba) </a>ㅤ≡ㅤ<a href= "">nothing here man.</a> 
 </p>
