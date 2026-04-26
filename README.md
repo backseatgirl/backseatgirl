@@ -8,5 +8,5 @@
 </a>
 <img src="https://i.pinimg.com/1200x/fd/b9/56/fdb9565a6708626b653f5268dfe38d2c.jpg" width="250" height="260%"/>
 <p align="center">
- <a href= "https://listography.com/shrikes"> listography</a>ㅤ≡ㅤ <a href= "https://dustyeyes.straw.page"> ph strawpage</a>ㅤ≡ㅤsuper secret link.
+ <a href= "https://listography.com/shrikes"> listography</a>ㅤ≡ㅤ <a href= "https://dustyeyes.straw.page"> strawpage</a>ㅤ≡ㅤsuper secret link.
 </p>
