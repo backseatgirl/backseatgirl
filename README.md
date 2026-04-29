@@ -10,3 +10,6 @@
 <p align="center">
  <a href= "https://listography.com/shrikes"> listography</a>ㅤ≡ㅤ <a href= "https://dustyeyes.straw.page"> strawpage</a>ㅤ≡ㅤsuper secret link.
 </p>
+ <p align="center">
+ hi mini note, i'm a bit mentally unwell atm, i won't be online much <br> forgive me if i seem dry or a bit rude.
+ <p align="center">
